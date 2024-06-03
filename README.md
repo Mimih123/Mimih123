@@ -1,5 +1,5 @@
 - 👋 olá,meu nome é Yasmin
-- 👀 passar na UNB e engressar em enfermagem.
+- 👀 Tenho interesse mais na area de tecnológia e ter mais desenvolvimento.
 - 🌱 Atualmente estou aprendendo em como desenvolver um site .
 - 💞️ Pretendo sair com o curso completo.
 
